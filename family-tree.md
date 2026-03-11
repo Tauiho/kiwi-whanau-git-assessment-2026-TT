@@ -12,4 +12,4 @@
 -Grandma: Ana "White Ferns Supporter" Williams (Wellington)
 
 ##Family Traditions
--Weekend BBQs watching the All Blacks, White Ferns, Black Caps, Warriors NRL, UFC3
+-Weekend BBQs watching the All Blacks, White Ferns, Black Caps, Warriors NRL, UFC
