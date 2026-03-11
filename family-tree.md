@@ -3,6 +3,8 @@
 #Grandparents
 ##Children
 -Son: Mike "Black Caps & Warriors Fan" Williams (lives in Christchurch)
+-Grandson: Liam (12, future All Black, Christchurch)
+-Granddaughter: Mia (8, White Ferns fanatic)
 -Grandpa: Hone "All Blacks Legend" Williams (Auckland)
 -Grandma: Ana "White Ferns Supporter" Williams (Wellington)
 
